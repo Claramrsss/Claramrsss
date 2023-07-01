@@ -4,4 +4,6 @@ Oii, eu sou a Clara Moraes ✨
 
 💻 Atualmente estou apredendo Programação para Web
 
+💡  No momento pretendo finalizar o curso 
+
 📧 Contrate-me no meu e-mail: claradossantoa@gmail.com
