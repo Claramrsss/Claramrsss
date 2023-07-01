@@ -4,7 +4,7 @@ Oii, eu sou a Clara Moraes ✨
 
 💻 Atualmente estou aprendendo Programação para Web
 
-👩‍💼 Sou bem persistente, trabalho bem em equipe e pontual
+👩‍💼 Sou bem persistente, pontual e trabalho bem em equipe
 
 💡  No momento pretendo finalizar o curso 
 
